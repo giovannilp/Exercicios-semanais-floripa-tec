@@ -1,4 +1,4 @@
-#  💡 Exercicios semanais Floripa Mais Tec 💡
+#  💡 Exercícios semanais Floripa Mais Tec 💡
 
 ✅ Semana 01
 
