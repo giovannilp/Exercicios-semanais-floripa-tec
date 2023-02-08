@@ -1,1 +1,1 @@
-# Exercicios-semanais-floripa-tec
+# Exercicios semanais floripa mais tec
